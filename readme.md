@@ -9,5 +9,6 @@
 - ﹒ talk to me about blood debt when im not an awkward dumbass
 - ﹒ im a woke paraboy
 - ﹒ i like ongezellig (and oniondweller) too!
+- ﹒ ivan korolev + *alexei tarasov* kin
 
   . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
