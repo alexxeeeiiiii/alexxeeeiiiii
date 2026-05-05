@@ -1,14 +1,14 @@
 ## laaaaaarp
 
-﹒﹒﹒ *i want to be stereotyped... i want to be classified... /lyr* ⤵︎
+﹒﹒﹒ *good grief, he's NAKED! /lyr* ⤵︎
 
  
  
   
-- ﹒ i like enneagram...... im a huge beginner and i need to learn a lot though
-- ﹒ talk to me about blood debt when im not an awkward dumbass
-- ﹒ im a woke paraboy
+- ﹒ i like enneagram...... im a beginner and i need to learn a bit though
+- ﹒ talk to me about blood debt when im not being awkward
+- ﹒ im a woke transman
 - ﹒ i like ongezellig (and oniondweller) too!
-- ﹒ ivan korolev + *alexei tarasov* kin
+- ﹒ *alexei tarasov* kin, ns iakov kolokoltsev kin
 
   . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
