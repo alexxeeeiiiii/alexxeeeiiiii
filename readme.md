@@ -10,5 +10,6 @@
 - ﹒ im a woke transman
 - ﹒ i like ongezellig (and oniondweller) too!
 - ﹒ *alexei tarasov* kin, ns iakov kolokoltsev kin
+- ﹒ i have twitter, tiktok, and discord... feel free to ask for any....
 
   . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
