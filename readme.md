@@ -9,7 +9,7 @@
 - ﹒ talk to me about blood debt when im not being awkward
 - ﹒ im a woke transman
 - ﹒ i like ongezellig (and oniondweller) too!
-- ﹒ *alexei tarasov* kin, ns iakov kolokoltsev kin
+- ﹒ *alexei tarasov* kin, ns iakov kolokoltsev selfshipper
 - ﹒ i have twitter, tiktok, and discord... feel free to ask for any....
 
   . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
