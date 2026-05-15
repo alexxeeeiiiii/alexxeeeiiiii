@@ -5,11 +5,11 @@
  
  
   
-- ﹒ i like enneagram...... im a beginner and i need to learn a bit though
-- ﹒ talk to me about blood debt when im not being awkward
+- ﹒ i like enneagram, im a beginner and i need to learn a bit though
+- ﹒ lebanese and canadian
 - ﹒ im a woke transman
 - ﹒ i like ongezellig (and oniondweller) too!
-- ﹒ *alexei tarasov* kin, ns iakov kolokoltsev selfshipper
-- ﹒ i have twitter, tiktok, and discord... feel free to ask for any....
+- ﹒ *randrei aleksandr* kin, ns iakov kolokoltsev selfshipper
+- ﹒ i have twitter, tiktok, and discord... feel free to ask for any
 
   . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
